@@ -43,4 +43,4 @@ graph TD
 
 ## Алгорим жизни без желания учить язык
 
-[![](https://cdn1.ozonusercontent.com/s3/product-service-meta-media/c2f992f0-496f-49c5-ba85-6c7b8c7736d1.jpg)](https://www.youtube.com/watch?v=dQw4w9WgXcQ&xstg=CAMSEBUJ_b-oH-PhF0yjBgavkzY%3D)
+[![Клик](https://papik.pro/grafic/uploads/posts/2023-04/thumbs/1682322463_papik-pro-p-stikeri-nazhmi-na-menya-vektor-23.jpg)](https://www.youtube.com/watch?v=dQw4w9WgXcQ&xstg=CAMSEBUJ_b-oH-PhF0yjBgavkzY%3D)
